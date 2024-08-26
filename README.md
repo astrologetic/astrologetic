@@ -19,7 +19,7 @@
       <img src="https://media.discordapp.net/attachments/647468908097306625/1277523613964046386/astroooo.png?ex=66cd7a14&is=66cc2894&hm=c71423d97e86809cdc82aabf9aa8d8d18f8e18054588bf9989315581e7593988&=&format=webp&quality=lossless" alt="hueuihi" width="100%" height="auto">
     </div>
     <div>
-      <h3>before you interact</h3>
+      <h3>𝚋𝚎𝚏𝚘𝚛𝚎 𝚢𝚘𝚞 𝚒𝚗𝚝𝚎𝚛𝚊𝚌𝚝</h3>
       <list>
         <ol>im often always offtab, i apologize if i dont respond :-2 but cuddling is always okay</ol>
         <ol>if u sit by me i dont really care if its in a ship way or not, if u just wanna be by someone be my guest</ol>
